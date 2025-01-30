@@ -1,1 +1,1 @@
-Groupwork carried out during University courses
+Groupwork developed during University courses
