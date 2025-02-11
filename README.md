@@ -1,1 +1,1 @@
-University coursework including group and personal projects
+Relevant uni coursework including group and personal projects
